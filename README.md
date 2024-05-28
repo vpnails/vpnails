@@ -1,5 +1,7 @@
-### Essa é a minha breve biografia ❤️
+### Essa é o meu repositório, seja bem vindo ❤️
 
+- Sou uma das estudantes do alura:🖥️  
+- estudo na escola Antônio de baptista:🏫
 - Eu sou Nail Designer e amo muito o que eu faço;💅
 - Sou uma menina que luta pelo o que quer;👊
 - O meu maior sonho é constituir uma família;👩‍❤️‍👨
